@@ -1,6 +1,6 @@
 haiiii!!
-🦎 i am  julia p.
+🦎 i am  jules p.
 - 🐊 any prns :')  
-- 🐢 swhs 2024
-- 🐍 i know python, learning java and javascript
-- 🐉 coding is very cool and awesome 
+- 🐢 wwu 2028
+- 🐍 i liek reptiles
+- 🐉 coding is very cool
